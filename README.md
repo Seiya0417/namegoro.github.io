@@ -1,0 +1,1 @@
+# namegoro.github.io
